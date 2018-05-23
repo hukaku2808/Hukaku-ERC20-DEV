@@ -1,3 +1,5 @@
+https://medium.com/bitfwd/how-to-do-an-ico-on-ethereum-in-less-than-20-minutes-a0062219374
+
 How to do an ICO on Ethereum in less than 20 minutes.
 
 Congratulations, you finally found it. This is exactly what you were looking for all over the internet.
